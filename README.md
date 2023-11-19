@@ -68,6 +68,8 @@ A list of Back November, Black Friday & Cyber Monday promotions and discounts fo
 
 #### 💸 (50% OFF) [BoldDesk](https://www.bolddesk.com/black-friday) – Cloud based Modern ticketing system and knowledge base software. Code: BLACKFRIDAY50 = 50% off
 
+#### 💸 (50% OFF) [Appfigures](https://appfigures.com/account/upgrade?p=BF2350S) – App Store Optimization and Competitior Intelligence. Code: BF2350S = 50% off
+
 ### VPN
 
 #### 💸 (69% OFF) [NordVPN](https://nordvpn.com/) - Online VPN service that encrypts your internet traffic
